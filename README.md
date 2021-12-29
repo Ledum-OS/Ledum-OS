@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ledum-OS
-- 👀 I’m interested in Graphics designs
-- 🌱 I’m currently learning Social media Merketing
+- 👀 I’m interested in Digital designs
+- 🌱 I’m currently learning Social media Merketing, UI/IX, Community Management
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me : via ledumptr@gmail.com
 
